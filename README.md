@@ -14,16 +14,16 @@ En este espacio les compartiremos la receta para deleitar a su familia con unos 
 
 ### Procedimiento
 1. En un bol ponemos el chocolate y la mantequilla. Lo metemos al microondas a temperatura media para que se vaya derritiendo. Una vez derretido lo lo mezclamos muy bien.
-![Primer imagen](brownie-facil.jpg)
+![Primer imagen](https://recetasdecocina.elmundo.es/wp-content/uploads/2016/11/brownie-facil.jpg)
 2. Ponemos los 4 huevos y el azúcar en un bol.
-![Segunda imagen](brownie-facil2.jpg)
+![Segunda imagen](https://recetasdecocina.elmundo.es/wp-content/uploads/2016/11/receta-de-brownie.jpg)
 3. Agregamos la harina y la cucharadita de bicarbonato. Mezclamos muy bien.
-![Tercera imagen](brownie-facil3.jpg)
+![Tercera imagen](https://recetasdecocina.elmundo.es/wp-content/uploads/2016/11/como-hacer-brownie.jpg)
 4. Agregamos el chocolate que hemos derretido junto con la mantequilla y el toque de vainilla. Seguimos mezclando.
-![Cuarta imagen](brownie-facil4.jpg)
+![Cuarta imagen](https://recetasdecocina.elmundo.es/wp-content/uploads/2016/11/la-mejor-receta-brownie.jpg)
 5. Agregamos las nueces y las pepitas de chocolate.
-![quinta imagen](brownie-facil5.jpg)
+![quinta imagen](https://recetasdecocina.elmundo.es/wp-content/uploads/2016/11/nueces-para-brownie.jpg)
 6. En un recipiente de horno ponemos un poco de mantequilla y harina para que no se nos pegue el brownie.
-![sexta imagen](brownie-facil6.jpg)
+![sexta imagen](https://recetasdecocina.elmundo.es/wp-content/uploads/2016/11/molde-para-brownie.jpg)
 7. Incorporamos la mezcla y cubrimos con unas pepitas y unas nueces (opcional). Introducimos al horno durante 30-35 minutos a 180º.
-![ultima imagen](brownie-facil7.jpg)
+![ultima imagen](https://recetasdecocina.elmundo.es/wp-content/uploads/2016/11/brownie-receta-facil.jpg)
